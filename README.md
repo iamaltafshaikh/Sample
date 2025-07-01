@@ -1,2 +1,1 @@
-just thinking about nothing. 
-all good.
+just thinking about nothing.
